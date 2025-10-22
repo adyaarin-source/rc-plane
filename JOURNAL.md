@@ -16,3 +16,8 @@ The Plane Body And Fuselage Have Been Completed, This Took Me 3h With A Hot Glue
 I Uploaded The Imag![Screenshot 2025-10-22 182737.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NDQwNiwicHVyIjoiYmxvYl9pZCJ9fQ==--41caf8e8b4aef104c3f629333dc0e71587bfecf2/Screenshot%202025-10-22%20182737.png)
 es To my Youtube Channel (RealspacePro) kjbdabvhjdgayibyudgyegdSVGGASBDVADIGDBSVJGDGHASBJDVGIUAHDVCGUFGUJBKCHGJIKNBJHINBHINBNJBNJJJ  
 
+## 10/22/2025 6:42 PM - Added Parts That I Had Leftover From Previous Projects  
+
+I Had A couple Of Servos Leftover From My Previous Project (Dropper Mechanism) And An ESC And Brushless Motor, I Only Need A Transmitter And Reciever And Battery![Screenshot 2025-10-22 181553.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NDQwNywicHVyIjoiYmxvYl9pZCJ9fQ==--6ff6940dab888a46ef9fd632b33b603354b9fab2/Screenshot%202025-10-22%20181553.png)
+  
+
