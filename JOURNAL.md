@@ -6,8 +6,13 @@
   ==================================================================
 -->
 
-## 10/22/2025 - I Made The plane Body  
+## 10/22/2025 6:16 PM - I Made The plane Body  
 
 The Plane Body And Fuselage Have Been Completed, This Took Me 3h With A Hot Glue Gun And Sheet Foam, I Mate The Tape Hinged Elevons As Well And They work Well![Screenshot 2025-10-22 181553.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NDQwNCwicHVyIjoiYmxvYl9pZCJ9fQ==--ffb086de2fc55558912df17ec846f575d76226f0/Screenshot%202025-10-22%20181553.png)
   
+
+## 10/22/2025 6:30 PM - I Made The post On Youtube About it  
+
+I Uploaded The Imag![Screenshot 2025-10-22 182737.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NDQwNiwicHVyIjoiYmxvYl9pZCJ9fQ==--41caf8e8b4aef104c3f629333dc0e71587bfecf2/Screenshot%202025-10-22%20182737.png)
+es To my Youtube Channel (RealspacePro) kjbdabvhjdgayibyudgyegdSVGGASBDVADIGDBSVJGDGHASBJDVGIUAHDVCGUFGUJBKCHGJIKNBJHINBHINBNJBNJJJ  
 
